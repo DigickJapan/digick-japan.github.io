@@ -1,1 +1,1 @@
-# digickjapan.github.io
+# digick.github.io
